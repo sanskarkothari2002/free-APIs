@@ -1,1 +1,1 @@
-# Top free 7 APIs for development
+# Top 7 APIs for development
